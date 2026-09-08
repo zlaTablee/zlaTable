@@ -1,2 +1,2 @@
 # zlaTable
->_&lt;
+There's nothing. Go away.
